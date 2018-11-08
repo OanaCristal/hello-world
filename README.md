@@ -1,3 +1,3 @@
 # hello-world
 My first repository i do on github
-Astazi e ziua 5 fara tigari. putin m-o luat cu naspa da am trecut peste ca doar. Sunt nefumatoare :)
+Today is day 5 eithout cigarettes. It was a bit harsh at some point but i moved past it because I'm a non-smoker :)
